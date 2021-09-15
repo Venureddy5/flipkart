@@ -1,4 +1,5 @@
 its to easy learn basics 
 harsha is enterpreneur 
-im good in basics 
+too busy in the work
+honest is gd 
 
